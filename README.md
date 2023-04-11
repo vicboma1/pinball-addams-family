@@ -1,5 +1,12 @@
 # Author: [@candy_arcade_pinball](https://www.instagram.com/candy_arcade_pinball/)
 
+
+### Videos [ Troubleshooting & more... ]
+```
+https://www.youtube.com/playlist?list=PLNph7ndeSqE_0BqCrkL_nftjOkhGQ4RZD
+```
+
+
 # Decal Thing's Box
 
 <p align="center">
