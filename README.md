@@ -1,5 +1,9 @@
 # Author: [@candy_arcade_pinball](https://www.instagram.com/candy_arcade_pinball/)
 
+### Reviews
+```
+https://www.pinwiki.com/wiki/index.php/Williams_WPC#WPC_Power.2FDriver_Board_Generations
+```
 
 ### Videos [ Troubleshooting & more... ]
 ```
